@@ -1,0 +1,1 @@
+# SOLIDWORKS-activation-by-qiis
